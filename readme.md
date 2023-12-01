@@ -11,3 +11,5 @@ adasa
 
 solomon
 assd
+
+Your bug is fixed
