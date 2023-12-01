@@ -1,7 +1,10 @@
 take me down to 
 the paradise city
 
-local train
+better than me better by you
 
-mama I'm comming home
-local trainnnnnnnnnnn
+high way to hell
+
+adasad
+adasa
+assd
